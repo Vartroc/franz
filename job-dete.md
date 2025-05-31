@@ -10,7 +10,6 @@ on _Un job d’été en France_, using **B1-level vocabulary and grammar**, with
 
 ### ✅ Introduction
 
-- Bonjour, je m'appelle \[Ton prénom].
 - Aujourd’hui, je vais parler d’un job d’été en France.
 - C’est une bonne expérience pour apprendre, travailler et découvrir la culture.
 
@@ -53,8 +52,8 @@ on _Un job d’été en France_, using **B1-level vocabulary and grammar**, with
 
 ## 🗣️ **Part 2: Full Example Speech (2 Minutes)**
 
-Bonjour, je m'appelle Lucas. Aujourd’hui, je vais vous parler d’un job d’été en
-France. Je pense que c’est une expérience très intéressante pour les jeunes.
+Aujourd’hui, je vais vous parler d’un job d’été en France. Je pense que c’est
+une expérience très intéressante pour les jeunes.
 
 D’abord, pourquoi faire un job d’été en France ? Il y a plusieurs raisons. On
 peut améliorer son niveau de français, gagner un peu d’argent, et découvrir un
