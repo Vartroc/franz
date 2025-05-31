@@ -1,79 +1,104 @@
-## 🎯 **Presentation Goal:**
+Great! Here's a structured approach to your 3–4-minute oral presentation on
+**"Un job d'été en France"** designed for a B1-level French learner. It
+includes:
 
-Deliver a **clear, formal**, and **well-structured** 2-minute oral presentation
-on _Un job d’été en France_, using **B1-level vocabulary and grammar**, with
-**three main content areas**.
-
----
-
-## 🧠 **Part 1: Easy-to-Memorize Bullet Points (For Practice)**
-
-### ✅ Introduction
-
-- Aujourd’hui, je vais parler d’un job d’été en France.
-- C’est une bonne expérience pour apprendre, travailler et découvrir la culture.
+1. ✅ **Easy-to-memorize bullet points**
+2. 🗣️ **A full sample speech**
 
 ---
 
-### ✅ Partie 1 : Pourquoi faire un job d’été en France ?
+### ✅ **Plan en trois parties – Bullet Points (facile à mémoriser)**
 
-- Pour améliorer mon français.
-- Pour gagner de l’argent de poche.
-- Pour découvrir la vie en France.
-- Pour rencontrer des gens et échanger.
+#### 🟢 Introduction
 
----
-
-### ✅ Partie 2 : Quel type de job ?
-
-- Par exemple : serveur, animateur ou aide dans un camping.
-- Travail simple, mais utile pour apprendre.
-- Pas besoin de parler parfaitement français.
-- Il faut être motivé et sérieux.
+- Bonjour, aujourd’hui je vais parler d’un job d’été en France.
+- Je vais expliquer pourquoi c’est une bonne expérience.
+- Ensuite, je vais parler d’un exemple de travail et de mes impressions.
 
 ---
 
-### ✅ Partie 3 : Mon expérience ou mon projet
+#### 🔵 Partie 1 : Pourquoi faire un job d’été en France ?
 
-- J’aimerais travailler en France un jour.
-- L’OFAJ aide les jeunes à trouver un job en Allemagne ou en France.
-- C’est aussi un échange entre cultures, comme dans les jumelages.
-- Je me prépare en écrivant un CV et en pratiquant l’entretien.
-
----
-
-### ✅ Conclusion
-
-- Un job d’été en France est une bonne idée.
-- On apprend beaucoup : langue, travail, culture.
-- Merci de votre attention.
+- C’est une bonne façon d’améliorer son français.
+- On découvre la culture française.
+- On gagne de l’argent et de l’expérience professionnelle.
+- On peut rencontrer des jeunes Français grâce à l’OFAJ.
 
 ---
 
-## 🗣️ **Part 2: Full Example Speech (2 Minutes)**
+#### 🟡 Partie 2 : Exemple d’un job – Travailler dans un café
 
-Aujourd’hui, je vais vous parler d’un job d’été en France. Je pense que c’est
-une expérience très intéressante pour les jeunes.
+- J’ai travaillé comme serveur dans un café à Lyon.
+- Je devais prendre les commandes, servir les clients et nettoyer les tables.
+- C’était parfois fatigant, mais aussi amusant.
+- J’ai parlé beaucoup en français avec les clients et les collègues.
 
-D’abord, pourquoi faire un job d’été en France ? Il y a plusieurs raisons. On
-peut améliorer son niveau de français, gagner un peu d’argent, et découvrir un
-nouveau pays. En plus, on peut rencontrer de nouvelles personnes et apprendre à
-vivre dans une autre culture.
+---
 
-Ensuite, il existe beaucoup de types de jobs d’été. Par exemple, on peut
-travailler comme serveur dans un café, animateur dans une colonie de vacances,
-ou aide dans un camping. Ce sont des petits boulots, mais ils sont utiles. On
-n’a pas besoin de parler parfaitement le français, mais il faut être motivé,
-sérieux et poli.
+#### 🔴 Partie 3 : Mon avis personnel
 
-Enfin, je veux aussi parler d’un projet personnel. J’aimerais faire un job d’été
-en France l’année prochaine. L’OFAJ, l’Office franco-allemand pour la jeunesse,
-aide les jeunes à trouver des stages et des jobs en France et en Allemagne.
-C’est une bonne idée pour vivre une expérience franco-allemande. À l’école, nous
-avons déjà vu comment préparer un entretien d’embauche, comme dans le film
-Intouchables. Je me prépare aussi en écrivant un CV et en pratiquant mon
+- C’était une très bonne expérience.
+- J’ai appris à être plus responsable.
+- J’ai fait des progrès en français.
+- Je recommande cette expérience à tout le monde.
+
+---
+
+#### 🟣 Conclusion
+
+- En conclusion, un job d’été en France est une bonne idée.
+- On apprend la langue, la culture, et on devient plus indépendant.
+- Merci de m’avoir écouté !
+
+---
+
+### 🗣️ **Exemple de discours complet – Niveau B1 (3-4 minutes)**
+
+---
+
+**Bonjour,**
+
+Aujourd’hui, je vais vous parler d’un job d’été en France. Un travail pendant
+les vacances peut être très utile pour un jeune. Je vais vous expliquer pourquoi
+c’est une bonne expérience. Ensuite, je vais vous donner un exemple de job, et à
+la fin, je partagerai mon avis personnel.
+
+---
+
+**Premièrement, pourquoi faire un job d’été en France ?** Un job d’été permet de
+pratiquer la langue française. On parle tous les jours avec des Français, donc
+on progresse rapidement. C’est aussi une bonne façon de découvrir la culture. On
+voit comment les gens vivent, ce qu’ils mangent, et comment ils travaillent. En
+plus, on gagne un peu d’argent. Cela peut aider pour payer les vacances ou les
+études. Grâce à l’OFAJ, il est aussi possible de trouver un job en lien avec un
+jumelage franco-allemand. On peut travailler avec des jeunes Français, ce qui
+est très enrichissant.
+
+---
+
+**Deuxièmement, un exemple de job d’été : serveur dans un café.** L’été dernier,
+j’ai travaillé dans un petit café à Lyon. J’étais serveur. Mon travail était de
+prendre les commandes, de servir les boissons, et de nettoyer les tables. Le
+matin, je commençais à 8 heures. Le soir, je finissais vers 16 heures. C’était
+parfois fatiguant, surtout quand il y avait beaucoup de clients. Mais c’était
+aussi très intéressant. J’ai appris à parler poliment avec les clients, à être
+rapide et organisé. Mes collègues étaient gentils et m’ont aidé à améliorer mon
 français.
 
-En conclusion, un job d’été en France est une bonne occasion pour apprendre,
-travailler et découvrir un autre pays. C’est aussi un échange culturel très
-riche. Merci beaucoup de votre attention.
+---
+
+**Enfin, mon avis personnel.** Cette expérience a été très positive pour moi.
+J’ai gagné un peu d’argent, mais surtout, j’ai appris beaucoup. J’étais plus
+autonome. J’ai aussi compris mieux la culture française. Et bien sûr, mon niveau
+de français a beaucoup progressé. Je pense que tous les jeunes devraient essayer
+de faire un job d’été à l’étranger, surtout en France.
+
+---
+
+**Pour conclure,** un job d’été en France est une très bonne idée. On apprend la
+langue, on découvre la culture, et on grandit. Merci beaucoup de m’avoir écouté.
+
+---
+
+Souhaites-tu une fiche de vocabulaire associée ou une fiche pour t’entraîner à
+la prononciation ?

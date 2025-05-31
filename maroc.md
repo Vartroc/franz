@@ -1,74 +1,98 @@
-## 🔹 **Points-clés (faciles à mémoriser)**
-
-**Introduction :**
-
-- Le Maroc est un pays entre **tradition** et **modernité**.
-- Il a une **histoire ancienne**, mais aussi des **villes modernes**.
+Of course! Here's a well-structured **3-minute oral presentation** in **B1-level
+French** on the topic:
 
 ---
 
-**1. La culture et les traditions**
-
-- Le Maroc a une culture **riche** et **diverse**.
-- La musique, la cuisine, les vêtements traditionnels sont très **importants**.
-- Les fêtes comme l’**Aïd** sont toujours **célébrées**.
+## 🎯 **Presentation Title**: _Le Maroc — un pays traditionnel ou moderne ?_
 
 ---
 
-**2. Le développement des villes**
+## 📝 **Partie 1 : Bullet points faciles à mémoriser**
 
-- Des villes comme **Casablanca**, **Rabat** ou **Marrakech** sont très
-  **modernes**.
-- Il y a des **centres commerciaux**, des **transports modernes** et des
-  **universités**.
-- Le pays investit dans les **infrastructures**.
+### 🎯 Introduction
 
----
-
-**3. La jeunesse et la technologie**
-
-- Les jeunes utilisent beaucoup les **réseaux sociaux** et **Internet**.
-- Il y a beaucoup de **startups** et de **projets technologiques**.
-- L’éducation évolue vers le **numérique**.
+- Le Maroc est un **pays du nord de l’Afrique**.
+- Il est **riche en culture, histoire et modernité**.
+- Est-ce que le Maroc est **traditionnel ou moderne** ? Nous allons voir **les
+  deux côtés**.
 
 ---
 
-**Conclusion :**
+### 🕌 1. Les traditions marocaines
 
-- Le Maroc est un **mélange** entre **tradition** et **modernité**.
-- C’est une **force** pour le pays.
+- Le Maroc a une **culture très ancienne**.
+- Les repas comme le **tajine**, le **couscous**, et le **thé à la menthe** sont
+  très importants.
+- Les **souks** (marchés) sont des endroits traditionnels pour acheter des
+  produits locaux.
+- La **famille** est très importante dans la culture.
 
 ---
 
-## 🔹 **Exemple complet de discours (2 minutes)**
+### 🏙️ 2. Le Maroc moderne
+
+- Le Maroc a de grandes **villes modernes** comme Casablanca, Rabat et
+  Marrakech.
+- Il y a beaucoup de **bâtiments modernes, centres commerciaux et transports
+  rapides**.
+- Les jeunes utilisent **Internet, smartphones, et réseaux sociaux**.
+- L’éducation et le tourisme sont en **développement rapide**.
+
+---
+
+### ⚖️ 3. Un mélange des deux
+
+- Le Maroc est **à la fois traditionnel et moderne**.
+- Les gens **gardent les traditions**, mais ils **avancent aussi avec la
+  technologie**.
+- C’est un pays qui **respecte le passé** et qui **prépare le futur**.
+
+---
+
+### ✅ Conclusion
+
+- En conclusion, le Maroc est **un mélange unique**.
+- C’est un pays où **la tradition rencontre la modernité**.
+- C’est ce qui fait la **richesse du Maroc**.
+
+---
+
+## 🗣️ **Exemple de discours complet (niveau B1)**
+
+---
 
 Bonjour à tous,
 
-Aujourd’hui, je vais vous parler du **Maroc**, un pays entre **tradition** et
-**modernité**. Ce pays du nord de l’Afrique a une **longue histoire**, mais il
-regarde aussi vers l’**avenir**.
+Aujourd’hui, je vais vous parler d’un pays très intéressant : **le Maroc**. Le
+Maroc est un **pays du nord de l’Afrique**, connu pour sa **culture riche** et
+son **histoire ancienne**. Mais est-ce que le Maroc est un **pays traditionnel**
+ou **moderne** ? À mon avis, c’est un **mélange des deux**.
 
-D’abord, parlons des **traditions**. Le Maroc a une **culture très riche**. La
-musique, comme le **gnawa** ou le **chaâbi**, est très populaire. Les vêtements
-traditionnels comme le **djellaba** ou le **caftan** sont encore portés pendant
-les **fêtes**. La cuisine marocaine, avec le **couscous** et le **tajine**, est
-célèbre dans le monde entier. Les fêtes religieuses, comme l’**Aïd el-Fitr** ou
-l’**Aïd el-Kébir**, sont toujours très **importantes** dans la vie des familles.
+D’abord, parlons des **traditions marocaines**. Le Maroc a une culture très
+forte. Par exemple, la cuisine est très importante. Les plats comme le
+**tajine**, le **couscous**, et le **thé à la menthe** sont très populaires. On
+les mange souvent en **famille**. Dans les **souks**, on peut acheter des
+produits locaux comme des épices, des tapis, ou des vêtements. La **famille** et
+la **religion** jouent un grand rôle dans la vie quotidienne.
 
-Ensuite, le Maroc est aussi un pays **moderne**. Les grandes villes comme
-**Casablanca**, **Rabat**, ou **Tanger** ont des **immeubles modernes**, des
-**centres commerciaux**, et des **transports rapides**, comme le **train à
-grande vitesse** (le TGV). Le gouvernement investit dans les **routes**, les
-**écoles**, et les **hôpitaux**.
+Ensuite, le Maroc est aussi un pays **moderne**. Dans les grandes villes comme
+**Casablanca**, **Rabat** ou **Marrakech**, on voit des **bâtiments modernes**,
+des **voitures rapides**, et des **centres commerciaux**. Les jeunes utilisent
+**les smartphones**, **Internet**, et les **réseaux sociaux**. L’**éducation**
+et le **tourisme** se développent beaucoup. Il y a aussi des projets pour
+protéger **l’environnement**.
 
-Enfin, la **jeunesse marocaine** est très **connectée**. Beaucoup de jeunes
-utilisent **Internet**, les **réseaux sociaux**, et les **smartphones**. Il y a
-de plus en plus de **startups** dans le domaine de la **technologie** et de
-l’**énergie verte**. L’éducation évolue aussi, avec plus de **technologie dans
-les écoles**.
+Enfin, je pense que le Maroc est **à la fois traditionnel et moderne**. Les gens
+respectent **les traditions**, mais ils veulent aussi **vivre avec la
+technologie**. C’est un pays qui **change**, mais qui **garde son identité**.
 
-En conclusion, je pense que le Maroc est un **mélange unique** de **tradition**
-et de **modernité**. Cette combinaison est une **richesse** et une **force**
-pour le futur du pays.
+En conclusion, le Maroc est **un pays unique**. Il montre que **la tradition**
+et **la modernité** peuvent **vivre ensemble**. C’est ce mélange qui fait **la
+beauté et la richesse** du Maroc.
 
 Merci de votre attention.
+
+---
+
+Souhaitez-vous une version audio ou des conseils pour la prononciation ou
+l’intonation ?

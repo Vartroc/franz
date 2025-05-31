@@ -1,51 +1,55 @@
-## ✅ **Plan en puces faciles à mémoriser : "Nice à mille facettes"**
+Bien sûr ! Voici d’abord des **bullet points** clairs et faciles à mémoriser
+pour votre exposé oral de 3 minutes intitulé **« Nice à mille facettes »**, puis
+un **discours complet** en français niveau B1.
 
-### 1. **Nice et sa géographie**
+## 🔹 **Plan en trois parties (bullet points faciles à retenir)**
 
-- Nice est située **au sud de la France**, sur la **Côte d’Azur**.
-- Elle est entre **la mer Méditerranée** et **les montagnes**.
-- Le climat est **doux** et **ensoleillé** presque toute l’année.
+### 1. **Nice, une ville entre mer et montagnes**
 
-### 2. **Nice, ville d’art et d’histoire**
+- Située dans le **sud de la France**, sur la **Côte d’Azur**
+- Climat **méditerranéen** : **beaucoup de soleil**, peu de pluie
+- Vue magnifique entre la **mer bleue** et les **collines**
 
-- Nice a une **histoire riche**, influencée par **l’Italie**.
-- Le **Vieux-Nice** a des **rues étroites** et des **maisons colorées**.
-- On peut visiter des **musées** comme le musée **Matisse**.
+### 2. **Un patrimoine riche et varié**
 
-### 3. **Nice aujourd’hui : ville moderne et touristique**
+- La **Promenade des Anglais** : une avenue célèbre au bord de la mer
+- La **vieille ville** : rues étroites, maisons colorées, **marché aux fleurs**
+- Influence italienne dans l’**architecture** et la **cuisine**
 
-- Nice est une ville **très touristique**.
-- La **Promenade des Anglais** est célèbre dans le monde entier.
-- Il y a de nombreux **festivals**, comme le **carnaval de Nice**.
+### 3. **Une ville dynamique et culturelle**
+
+- Festivals : **Carnaval de Nice** en février, très coloré et joyeux
+- Musées : musée **Matisse**, musée d’art moderne
+- Cuisine locale : **la socca**, la salade niçoise, les **olives**
 
 ---
 
-## 🗣️ **Discours oral complet (niveau B1, clair et structuré)**
+## 🎤 **Exemple de discours complet (niveau B1, facile à mémoriser)**
 
-Bonjour,
+Bonjour à tous,
 
-Aujourd’hui, je vais vous parler de **Nice**, une ville française **à mille
-facettes**.
+Aujourd’hui, je vais vous parler d’une ville que j’aime beaucoup : **Nice**, une
+ville à **mille facettes**. Elle est **belle**, **riche en culture**, et très
+**agréable à visiter**.
 
-D’abord, parlons de sa **géographie**. Nice est située **au sud de la France**,
-sur la **Côte d’Azur**. Elle est entre **la mer Méditerranée** et **les
-montagnes**. Grâce à sa position, le **climat** est très agréable, avec beaucoup
-de **soleil** presque toute l’année.
+D’abord, **Nice est située dans le sud de la France**, près de la frontière
+italienne. Elle se trouve entre la **mer Méditerranée** et les **montagnes**. Le
+**climat est doux** toute l’année, avec beaucoup de soleil. C’est une
+destination parfaite pour les vacances.
 
-Ensuite, Nice est une ville **riche en art et en histoire**. Elle a été
-influencée par l’**Italie**, car elle faisait partie de ce pays avant de devenir
-française. Le **Vieux-Nice** est très connu pour ses **rues étroites**, ses
-**marchés** et ses **maisons colorées**. Il y a aussi plusieurs **musées**,
-comme le musée **Matisse**, qui montrent l’importance de l’art dans la ville.
+Ensuite, Nice a un **grand patrimoine**. Il y a la célèbre **Promenade des
+Anglais**, où on peut marcher en regardant la mer. Dans la **vieille ville**, on
+trouve des **rues étroites**, des **maisons colorées** et un **beau marché aux
+fleurs**. L’**architecture** a une grande influence italienne, et la **culture
+locale** est très vivante.
 
-Enfin, Nice est aussi une ville **moderne et dynamique**. Elle attire beaucoup
-de **touristes** chaque année. La **Promenade des Anglais**, au bord de la mer,
-est un lieu très célèbre pour **se promener** ou **faire du sport**. Il y a
-aussi de grands **événements**, comme le **carnaval de Nice**, qui est l’un des
-plus importants en France.
+Enfin, Nice est une ville **dynamique**. Chaque année, on peut voir le
+**Carnaval de Nice**, avec des défilés, des musiques et des costumes
+magnifiques. Il y a aussi plusieurs **musées intéressants**, comme le musée
+Matisse. Et bien sûr, la **gastronomie** est importante : on peut goûter la
+**socca**, une spécialité à base de pois chiches, ou encore la **salade
+niçoise**.
 
-En conclusion, Nice est une ville qui a **beaucoup à offrir** : une nature
-magnifique, une culture riche et une vie moderne. C’est vraiment une ville **à
-mille facettes**.
-
-Merci de votre attention.
+Pour conclure, Nice est une ville **riche**, **animée**, et **pleine de
+surprises**. Elle offre un bon mélange de **nature**, **culture** et
+**plaisir**. Merci pour votre attention.
