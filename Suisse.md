@@ -1,71 +1,51 @@
-## 🎯 Objectif : Présentation orale réussie en 2 minutes
+## ✅ **Points-clés à mémoriser** (niveau B1, facile et clair)
 
-### 📌 Sujets abordés (4 axes clairs) :
+### 🗺️ 1. Géographie
 
-1. La géographie de la Suisse
-2. Les langues officielles
-3. L’économie et les spécialités suisses
-4. Le tourisme et les lieux à visiter
+- La Suisse est un petit pays en Europe centrale.
+- Elle a des frontières avec la France, l’Allemagne, l’Italie, et l’Autriche.
+- Il y a beaucoup de montagnes, comme les Alpes.
+- Les langues officielles sont l’allemand, le français, l’italien et le
+  romanche.
 
----
+### 🎭 2. Culture
 
-## 🧠 Partie 1 : Bullet points faciles à mémoriser
+- La Suisse est célèbre pour sa neutralité.
+- Elle est connue pour le chocolat, le fromage et les montres.
+- Il y a beaucoup de traditions dans chaque région.
+- Le pays respecte beaucoup la nature.
 
-### 1. **Géographie**
+### 💰 3. Économie
 
-- La Suisse est en Europe centrale.
-- Elle a des frontières avec 5 pays : France, Allemagne, Italie, Autriche,
-  Liechtenstein.
-- Il y a des montagnes : les Alpes et le Jura.
-- Il y a aussi beaucoup de lacs.
-
-### 2. **Langues**
-
-- Il y a 4 langues officielles : allemand, français, italien, romanche.
-- L’allemand est la langue la plus parlée.
-- Le français est parlé à Genève, Lausanne, Neuchâtel…
-
-### 3. **Économie et spécialités**
-
-- La Suisse est très riche.
-- Elle est connue pour les banques, les montres, le chocolat et le fromage.
-- Le système politique est une démocratie directe.
-
-### 4. **Tourisme**
-
-- La Suisse a des paysages magnifiques.
-- Les touristes aiment faire du ski et de la randonnée.
-- Villes célèbres : Zurich, Genève, Lucerne, Berne.
-- Le Cervin est une montagne très connue.
+- La Suisse est un pays riche et stable.
+- Le tourisme est très important (sports d’hiver, montagnes, lacs).
+- Il y a beaucoup de banques et de compagnies internationales.
+- La qualité de vie est très bonne.
 
 ---
 
-## 🗣️ Partie 2 : Exemple de discours complet (à lire à voix haute)
+## 🗣️ **Exemple de discours complet (2 minutes)**
 
-_Temps approximatif de lecture : 2 minutes_
+Bonjour à tous,
 
----
+Aujourd’hui, je vais vous parler de la Suisse. C’est un pays très intéressant,
+situé au centre de l’Europe.
 
-**Bonjour,**
+**Premièrement, parlons de la géographie.** La Suisse est un petit pays, mais il
+a une grande importance. Elle a des frontières avec la France, l’Allemagne,
+l’Italie et l’Autriche. C’est un pays très montagneux, surtout avec les Alpes.
+On parle quatre langues officielles : l’allemand, le français, l’italien et le
+romanche. Le français est parlé dans l’ouest du pays.
 
-Aujourd’hui, je vais vous parler de la Suisse. C’est un petit pays très
-intéressant au centre de l’Europe. Il partage ses frontières avec la France,
-l’Allemagne, l’Italie, l’Autriche et le Liechtenstein. La Suisse est connue pour
-ses beaux paysages, avec les Alpes, le Jura, et de nombreux lacs.
+**Deuxièmement, parlons de la culture suisse.** La Suisse est connue pour sa
+neutralité, c’est-à-dire qu’elle ne participe pas aux guerres. Elle est célèbre
+pour ses produits comme le chocolat, le fromage et les montres de luxe. Chaque
+région a ses propres traditions. La population respecte beaucoup la nature, et
+il y a beaucoup de lacs et de forêts.
 
-La Suisse a quatre langues officielles : l’allemand, le français, l’italien et
-le romanche. L’allemand est la langue la plus utilisée, mais dans des villes
-comme Genève ou Lausanne, on parle français.
+**Enfin, l’économie de la Suisse est très forte.** C’est un pays riche, avec une
+bonne qualité de vie. Le tourisme est important, surtout en hiver pour le ski.
+La Suisse est aussi connue pour ses banques et ses grandes entreprises.
 
-L’économie de la Suisse est très développée. Le pays est célèbre pour ses
-banques, ses montres de luxe, son chocolat et son fromage. Le système politique
-est aussi spécial : les citoyens peuvent voter souvent sur les lois. C’est une
-démocratie directe.
-
-Enfin, la Suisse est une destination populaire pour les touristes. En hiver, on
-peut faire du ski dans les Alpes. En été, on peut faire de la randonnée dans la
-nature. Il y a aussi de belles villes comme Zurich, Genève, Lucerne et Berne, la
-capitale. Une montagne très célèbre s’appelle le Cervin.
-
-En conclusion, la Suisse est un pays multiculturel, riche, et plein de beautés
-naturelles. Merci de votre attention.
+En conclusion, la Suisse est un petit pays, mais très spécial. Elle a une belle
+nature, une culture riche, et une économie solide. Merci pour votre attention !
